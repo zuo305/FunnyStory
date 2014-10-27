@@ -1,0 +1,4 @@
+FunnyStory
+==========
+
+everything must funny
